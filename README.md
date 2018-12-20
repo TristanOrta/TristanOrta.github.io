@@ -1,2 +1,2 @@
 # TristanOrta.github.io
-# qque pdo perres 
+# https://otristan.me
